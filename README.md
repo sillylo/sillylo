@@ -5,7 +5,7 @@
 # ★ Lo / Pupgirl + etc  !
 
 ------------------------------------
-- 21
+- 15-17 minor
 - fem
 - PUPGIRLLL RAWRR ><
 - agere + pupre
