@@ -40,7 +40,5 @@ Gender Image:
 
 <br>
 
-## ✧ Visitors ✧  
-<img src="https://hits.seeyoufarm.com/api/count/incr?url=https://github.com/sillylo&title=cuties">
 
 </div>
